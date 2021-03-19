@@ -6,4 +6,5 @@ Divide batter between cake pans. Bake for 30-32 minutes or until the tops of the
 Make the frosting: In a large bowl using a handheld or stand mixer fitted with a whisk or paddle attachment, beat the cream cheese and butter together on medium-high speed until smooth, about 2 minutes. Add the confectioners’ sugar, vanilla extract, and a pinch of salt. Beat on low speed for 30 seconds, then increase to high speed and beat for 3 minutes until completely combined and creamy. Add more confectioners’ sugar if frosting is too thin or an extra pinch of salt if frosting is too sweet. Frosting should be soft, but not runny.
 Assemble and frost: Using a large serrated knife, slice a thin layer off the tops of the cakes to create a flat surface. Discard or crumble over finished cake. Place 1 cake layer on your cake stand or serving plate. Evenly cover the top with frosting. Top with 2nd layer and spread remaining frosting all over the top and sides. I always use an icing spatula and bench scraper for the frosting. I used Wilton piping tip #12 for decoration around the top.
 Refrigerate cake for at least 30-60 minutes before slicing. This helps the cake hold its shape when cutting.
-                                            THANK YOU!!!
+                                            THANK YOU!!
+                                                 :D
